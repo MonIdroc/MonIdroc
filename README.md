@@ -50,7 +50,7 @@ $\color{#4855A8}\Huge{\textbf{Goodbye ✿ Goodbye }}$
   <img src="https://github.com/MonIdroc/MonIdroc/blob/9764b8cbbb657bf93ec8630676be3276be68cace/86110cdf_original.gif"> </a>
  <img src="https://github.com/MonIdroc/MonIdroc/blob/9764b8cbbb657bf93ec8630676be3276be68cace/7a2cd3de_original.gif"> </a>
   
-<img src="https://github.com/MonIdroc/MonIdroc/blob/360cee202598b4c3a486e2d577636331c861cd5e/tumblr_561e01708b08a22469c6220d80834188_9871913a_640.webp"> </a>  
+  
  
  
   <img src="https://github.com/MonIdroc/MonIdroc/blob/360cee202598b4c3a486e2d577636331c861cd5e/divider%20(2).png" width="%100">
